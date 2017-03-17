@@ -1,2 +1,2 @@
 # poop
-Poop make human better.
+一看你就是汁屎粪子
